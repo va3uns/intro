@@ -1,5 +1,5 @@
 hi, i'm varun,
 
-i am a designer and researcher based in düsseldorf.
+i’m a designer and researcher based in düsseldorf.
 
-i am interested in politics and public space, social interaction and speculative design.
+interested in design and the politics of public space, social interaction, human-centred design and speculative design.
